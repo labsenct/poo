@@ -1,2 +1,3 @@
-# poo
-i only use github as a way to connect links from ponytown heh
+# HIHI PEOPLE
+
+hello, this is how i connect links and share my commissions ^__^
